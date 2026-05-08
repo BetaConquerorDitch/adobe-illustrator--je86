@@ -1,4 +1,4 @@
-
+Enhance Adobe Illustrator for macOS with instant Brushes for Adobe Illustrator for macOS - typography tools and collaboration, the #1 brush. Includes typography tools and
 
 
 
